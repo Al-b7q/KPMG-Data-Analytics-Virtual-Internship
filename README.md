@@ -16,4 +16,4 @@ Data Quality Analysis &amp; Data Analytics &amp; Data Visualisations and Dashboa
 •	Gained proficiency in crafting impactful data visualizations and delivering persuasive presentations.
 
 
-![cert_page-0001](https://github.com/Al-b7q/KPMG-Data-Analytics-Virtual-Internship/assets/144049398/bb3b12e1-24ea-4e81-894f-a92f0c9a2e92)
+![1](https://github.com/Al-b7q/KPMG-Data-Analytics-Virtual-Internship/assets/144049398/3e6069b6-9594-41f7-af41-70dde6ef08c6)
